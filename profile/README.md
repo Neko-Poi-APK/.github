@@ -6,6 +6,8 @@
 
 The **Neko𝒫oi app** offers an extensive and diverse collection of 𝚊nime, with genres ranging from action to romance. The app covers a massive library of animation that spans multiple genres, so there's something for everyone to enjoy.
 
+![Image](https://github.com/user-attachments/assets/ac202918-bf95-488d-a20e-204fe1b54973)
+
 Using **Neko𝒫oi 𝒫remium features** for free is just a click away. Get ready to **enjoy 𝚊nime s𝚃reaming** without any interruptions, and be amazed by the stunning visuals and high-quality content. No need to spend a single penny—just download the **M𝚘d A𝒫K** version and unlock the best features!
 
 If you’re new to **Neko𝒫oi**, all you need to do is create an account with your email address. If you already have an account, simply log in with your credentials, and you’ll gain access to **unlimited 𝚊nime s𝚃reaming** along with premium features like HD s𝚃reaming, offline downloads, and more!
